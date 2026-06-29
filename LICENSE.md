@@ -1,4 +1,4 @@
-
+new Scripts for jujutsu shenanigans is the best jujutsu shenanigans Script, featuring no clip and no cooldown. Safe and powerful for all your needs.
 
 
 
